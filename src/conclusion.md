@@ -1,5 +1,8 @@
 # Conclusion
 
+Conclusion
+==========
+
 In this book, we have explored various techniques for developing and managing your personal brand effectively. From defining your unique value proposition to building a support system, we have provided you with the tools and strategies you need to elevate your personal brand and reach new heights in your career.
 
 Recap of Personal Branding Techniques
