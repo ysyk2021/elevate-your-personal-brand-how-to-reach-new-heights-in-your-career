@@ -1,5 +1,3 @@
-Chapter 6: Leveraging Social Media
-==================================
 
 Social media has become a powerful tool for personal branding and career success. In this chapter, we will explore the impact of social media on personal branding, strategies for leveraging social media, overcoming analysis paralysis, and building an online presence.
 

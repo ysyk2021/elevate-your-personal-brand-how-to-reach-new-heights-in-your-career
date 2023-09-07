@@ -1,5 +1,3 @@
-Chapter 9: Sustaining Your Personal Brand
-=========================================
 
 Building a strong personal brand is just the beginning of your journey towards career success. Sustaining your personal brand over the long-term requires commitment, dedication, and effort. In this chapter, we will explore strategies for maintaining motivation and inspiration, overcoming burnout and exhaustion, building a support system, and sustaining your personal brand over the long-term.
 
@@ -43,5 +41,4 @@ Conclusion
 ----------
 
 Sustaining your personal brand over the long-term requires commitment, dedication, and effort. By maintaining motivation and inspiration, overcoming burnout and exhaustion, building a support system, and adapting your personal brand as necessary, you can achieve sustained success in your personal and professional life. Use the strategies outlined in this chapter to sustain your personal brand over the long-term and reach new heights in your career.
-
 

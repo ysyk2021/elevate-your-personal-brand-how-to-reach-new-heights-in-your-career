@@ -1,5 +1,3 @@
-Building a Support System
-===================================================================================================
 
 Personal branding can be applied to both personal and professional goals, and building a support system is an essential component of achieving success in both areas. In this chapter, we will explore how to apply personal branding to personal and professional goals, the importance of building a support system, and strategies for cultivating relationships within your support system.
 

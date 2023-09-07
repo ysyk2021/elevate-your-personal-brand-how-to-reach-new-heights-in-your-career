@@ -1,5 +1,3 @@
-Chapter 8: Applying Personal Branding to Personal and Professional Goals
-========================================================================
 
 Personal branding is not just about career success; it can also be applied to personal goals. In this chapter, we will explore the role of personal branding in achieving personal and professional goals, strategies for applying personal branding to your goals, building a support system, and the impact of personal branding on personal and professional success.
 

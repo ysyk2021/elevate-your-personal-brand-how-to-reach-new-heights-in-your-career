@@ -1,5 +1,3 @@
-Chapter 2: Mindset for Personal Branding
-========================================
 
 Developing the right mindset is essential for building a successful personal brand. In this chapter, we will discuss strategies for developing a growth mindset, overcoming limiting beliefs about personal branding, building self-awareness, and embracing authenticity.
 
