@@ -1,5 +1,4 @@
-Chapter 9: The Impact of Social Media on Personal Branding
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the digital age, social media has become a powerful tool for building and elevating your personal brand. This chapter explores the significant role that social media plays in shaping your professional identity and offers strategies to harness its potential effectively.
 

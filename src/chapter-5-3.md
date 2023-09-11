@@ -1,5 +1,4 @@
-Chapter 6: Overcoming Obstacles and Setbacks
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In your journey to elevate your personal brand and reach new heights in your career, you will undoubtedly encounter obstacles and setbacks. These challenges are a natural part of any ambitious pursuit. In this chapter, we will explore strategies to help you navigate and overcome these hurdles effectively.
 

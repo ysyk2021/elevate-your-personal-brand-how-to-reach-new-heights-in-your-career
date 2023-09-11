@@ -1,5 +1,4 @@
-Chapter 5: The Power of Authenticity
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Authenticity is a cornerstone of personal branding. In this chapter, we delve into the profound impact of authenticity on your personal brand and how being true to yourself can help you reach new heights in your career.
 

@@ -1,5 +1,4 @@
-Chapter 2: The Impact of Personal Branding on Personal and Professional Success
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Your personal brand is more than just a buzzword; it's a powerful tool that can significantly influence your personal and professional success. In this chapter, we will explore how personal branding can impact various aspects of your life and career.
 

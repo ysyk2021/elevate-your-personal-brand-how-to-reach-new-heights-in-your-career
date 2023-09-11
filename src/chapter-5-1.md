@@ -1,5 +1,4 @@
-Chapter 3: The Importance of an Effective Brand Story
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Your personal brand is more than just a set of skills and experiences; it's a narrative that tells the world who you are and what you stand for. In this chapter, we explore the critical role of an effective brand story in elevating your personal brand and propelling your career to new heights.
 

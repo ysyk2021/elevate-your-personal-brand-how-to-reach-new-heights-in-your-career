@@ -1,5 +1,4 @@
-Chapter 4: Building Motivation
-==============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Motivation is the driving force behind your efforts to elevate your personal brand and reach new heights in your career. In this chapter, we will explore strategies and techniques to build and sustain motivation throughout your journey.
 

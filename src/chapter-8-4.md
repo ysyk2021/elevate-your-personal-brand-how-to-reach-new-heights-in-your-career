@@ -1,5 +1,4 @@
-Chapter 7: Overcoming Negative Feedback
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Constructive feedback can be a valuable tool for personal growth and brand refinement. However, negative feedback, whether from colleagues, peers, or online communities, can be challenging to navigate. In this chapter, we will explore strategies for effectively handling and overcoming negative feedback to elevate your personal brand.
 

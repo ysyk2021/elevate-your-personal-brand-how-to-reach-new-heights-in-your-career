@@ -1,5 +1,4 @@
-Chapter 5: Overcoming Burnout and Exhaustion
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In your quest to elevate your personal brand and reach new heights in your career, it's crucial to address a significant obstacle that many professionals encounter along the way: burnout and exhaustion. In this chapter, we will explore the causes of burnout, its impact on your personal brand, and effective strategies to overcome it.
 

@@ -1,5 +1,4 @@
-Chapter 9: Building a Growth Mindset Around Feedback
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey to elevate your personal brand and reach new heights in your career, feedback is not just a byproduct; it's a powerful tool for growth. Developing a growth mindset around feedback is crucial for personal and professional advancement. In this chapter, we will explore the concept of a growth mindset, its importance in handling feedback, and strategies to cultivate it.
 

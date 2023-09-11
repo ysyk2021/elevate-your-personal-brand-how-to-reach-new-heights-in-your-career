@@ -1,5 +1,4 @@
-Chapter 6: Building a Support System
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building a strong personal brand and reaching new heights in your career often require more than just individual effort. To truly elevate your personal brand, it's crucial to establish a robust support system that provides guidance, encouragement, and valuable resources. In this chapter, we will explore the importance of a support system and strategies for building one.
 

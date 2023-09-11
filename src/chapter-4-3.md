@@ -1,5 +1,4 @@
-Chapter 2: Understanding the Impact of Personal Branding
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound influence of personal branding on your career and professional success. Understanding the impact of personal branding is essential for realizing the significance of investing time and effort in crafting and nurturing your personal brand.
 

@@ -1,5 +1,4 @@
-Chapter 5: Building Emotional Intelligence
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey to elevate your personal brand and reach new heights in your career, one of the most crucial skills you can develop is Emotional Intelligence (EI). Also known as EQ (Emotional Quotient), this skill plays a pivotal role in your professional success and overall well-being. In this chapter, we will explore what emotional intelligence is, why it matters, and how you can build and leverage it to enhance your career.
 

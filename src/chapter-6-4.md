@@ -1,5 +1,4 @@
-Chapter 7: Overcoming Imposter Syndrome
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Imposter Syndrome is a pervasive feeling of self-doubt and inadequacy, despite evidence of one's competence and success. It's a common phenomenon that can hold you back from reaching your full potential and elevating your personal brand. In this chapter, we will explore the causes of Imposter Syndrome and provide practical strategies to overcome it.
 

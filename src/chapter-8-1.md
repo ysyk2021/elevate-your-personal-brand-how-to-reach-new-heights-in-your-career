@@ -1,5 +1,4 @@
-Chapter 3: Understanding the Nature of Reputation
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Your personal brand and reputation are intertwined, shaping how others perceive and interact with you in both your personal and professional life. In this chapter, we will explore the fundamental concepts of reputation, its significance, and how it influences your journey to elevate your personal brand and career.
 

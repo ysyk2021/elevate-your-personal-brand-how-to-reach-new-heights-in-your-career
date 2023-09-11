@@ -1,5 +1,4 @@
-Chapter 1: What is Personal Branding?
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's competitive professional landscape, personal branding has become an essential tool for career success. This chapter will explore the concept of personal branding and its significance in helping you reach new heights in your career.
 

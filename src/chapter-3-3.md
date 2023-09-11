@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Building Self-Awareness
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Self-awareness is the cornerstone of a powerful personal brand and a successful career. In this chapter, we will explore strategies for developing a deeper understanding of yourself and how it can help you reach new heights in your professional journey.
 

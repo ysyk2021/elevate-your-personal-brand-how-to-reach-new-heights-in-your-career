@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Communicating Your Personal Brand
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore a range of strategies to effectively communicate and showcase your personal brand to reach new heights in your career. Communicating your personal brand is crucial for creating a strong professional identity and making a lasting impression on colleagues, superiors, and potential employers.
 

@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Leveraging Social Media
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Social media has become an invaluable tool for enhancing your personal brand and advancing your career. In this chapter, we will explore effective strategies for harnessing the power of social media to reach new heights in your professional journey.
 

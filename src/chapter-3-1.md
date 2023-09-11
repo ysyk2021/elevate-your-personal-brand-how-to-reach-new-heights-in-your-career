@@ -1,5 +1,4 @@
-Chapter 3: Developing a Growth Mindset
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In your journey to elevate your personal brand and reach new heights in your career, one of the most critical factors is developing a growth mindset. A growth mindset is a powerful concept popularized by psychologist Carol Dweck. It's the belief that your abilities and intelligence can be developed with effort, learning, and perseverance. This mindset not only shapes your attitude towards challenges but also impacts how you approach your career goals and personal development.
 

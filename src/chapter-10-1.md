@@ -1,5 +1,4 @@
-Chapter 8: Sustaining Your Personal Brand Over the Long-Term
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building a strong personal brand is a significant achievement, but the journey doesn't end there. To truly reach new heights in your career, it's essential to sustain your personal brand over the long term. In this chapter, we will explore strategies for maintaining and enhancing your personal brand as you progress in your professional journey.
 

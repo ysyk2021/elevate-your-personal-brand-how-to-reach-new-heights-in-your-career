@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Building Your Personal Brand
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into practical strategies and techniques for building a strong and compelling personal brand that can propel your career to new heights. Building your personal brand is an intentional and ongoing process that requires a combination of self-awareness, communication skills, and strategic actions.
 

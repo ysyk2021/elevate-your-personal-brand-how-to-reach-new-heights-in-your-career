@@ -1,5 +1,4 @@
-Chapter 4: Understanding the Principles of Effective Communication and Networking
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the fundamental principles of effective communication and networking that are essential for elevating your personal brand and achieving new heights in your career. Effective communication and strategic networking are powerful tools that can help you build meaningful professional relationships and convey your personal brand to a wider audience.
 

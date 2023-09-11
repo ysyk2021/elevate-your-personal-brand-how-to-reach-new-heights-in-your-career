@@ -1,5 +1,4 @@
-Chapter 6: Overcoming Analysis Paralysis
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Analysis paralysis, the state of overthinking and indecision, can be a significant roadblock on your journey to elevating your personal brand and reaching new heights in your career. In this chapter, we will explore strategies to break free from this mental gridlock and make confident, informed decisions.
 

@@ -1,5 +1,4 @@
-Chapter 3: Building Self-Awareness
-==================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of self-awareness as a foundational element in elevating your personal brand and advancing your career. Self-awareness is the key to understanding your strengths, weaknesses, values, and aspirations, allowing you to make deliberate choices that align with your authentic self.
 
